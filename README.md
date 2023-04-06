@@ -1,3 +1,1 @@
-# AkseleratorЮ
-pupy
-ееее
+# Akselerator
