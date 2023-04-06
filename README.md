@@ -1,1 +1,1 @@
-# Akselerators
+# Akseleratorss
